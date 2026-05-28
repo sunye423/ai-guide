@@ -1,4 +1,4 @@
-# 番外 | OpenClaw 创始人的故事
+# 番外OpenClaw 创始人的故事
 
 > 从财富自由到重新创业，Peter Steinberger 的传奇经历
 
